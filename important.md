@@ -1,1 +1,0 @@
-It is more important to fully understadn the work than it is to rush to complete the cards. The purpose is to grasp the concepts and the leaqrning outcomes so that you can become a proffessional who fits into the technical workspace. This can only be acheived by thorough understanding and adequate practice.
